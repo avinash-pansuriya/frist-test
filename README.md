@@ -1,3 +1,0 @@
-# frist-test
-# wexim
-# wexim
